@@ -1,3 +1,3 @@
 # FLPs-That-Eg-Made
 literally just here to upload FLPs
-that's it lmao
+if you do end up using these FLPs please credit me ty!!!!
